@@ -1,4 +1,9 @@
-### Hi there 👋
+### Hey¬
+
+[Itch.io: mariothedog](https://mariothedog.itch.io/)<br>
+Discord: Mariothedog#4707
+
+
 
 <!--
 **mariothedog/mariothedog** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
